@@ -1,0 +1,1 @@
+# Minimo_full_page
